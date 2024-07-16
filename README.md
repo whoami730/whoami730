@@ -1,10 +1,10 @@
 ## Hi there 👋
 
-- 🔭 I’m currently working on nothing unfortunately.
+- 🔭 I’m currently working on building [my website](https://whoami730.github.io/).
 - 🌱 I’m currently learning to [hack whatsapp](https://www.linkedin.com/pulse/how-hack-someones-whatsapp-pamela-houston-gruen-m-a-sphr-imicc/).
-- 👯 I’m looking to collaborate on interesting research :)
-- 🤔 I’m looking for help with travelling while working.
+- 👯 I’m looking to collaborate on cool stuff which is not AI :)
+- 🤔 I’m looking for help with life.
 - 💬 Ask me about why I am confused all the time.
-- 📫 How to reach me: LinkedIn or Mail. Even physical mail would be great (although a bit old school).
+- 📫 How to reach me: Preferably don't. Unless you are offering me money, in which case, please use email.
 - 😄 Pronouns: who/am/i
-- ⚡ Fun fact: Despite my avatar, I have not really watched anime in a long time now.
+- ⚡ Fun fact: I find psychology and AI to be quite inter-linked.
